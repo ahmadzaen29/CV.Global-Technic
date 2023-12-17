@@ -1,2 +1,1 @@
-# mas_D
-dulu kita sahabat, sekarang jadi ... 
+
